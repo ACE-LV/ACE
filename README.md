@@ -1,2 +1,0 @@
-# ACE
-NEW WORLD
